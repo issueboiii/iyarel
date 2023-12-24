@@ -1,2 +1,2 @@
 # Nheb Nmout
-https://issueboiii.github.io/nheb-nmout/
+https://destroylone3y.github.io/nheb-nmout/
